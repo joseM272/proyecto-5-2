@@ -1,0 +1,1 @@
+Esta biografia tiene una breve descripcion de mi persona, con algunos de mis hobbies y cosas que no me gustan.
